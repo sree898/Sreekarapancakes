@@ -1,0 +1,4 @@
+In a large bowl, mix enderflour, nethersugar. Make a well in the center, and pour in hoglinmilk,endereggs. Mix until smooth.
+
+Step 2
+Heat a lightly oiled griddle or frying pan over medium high heat. Pour or scoop the batter onto the griddle, using approximately 1/4 cup for each pancake. Brown on both sides and serve hot.
